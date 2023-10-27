@@ -1,0 +1,1 @@
+I now understand better all the steps that are required and what the developers I've worked with meant by some of the terminology used. 
